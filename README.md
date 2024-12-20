@@ -1,3 +1,1 @@
 # conflict-res
-
-bsdjmnbjsnmdkjmdsb
